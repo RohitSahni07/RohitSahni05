@@ -1,7 +1,7 @@
 # Hi there, I'm Rohit Sahni  👋 
 
 
-## I'm a Husband, Father, Developer, and Teacher!!
+## ABOUT ME!!
 
 - 👨🏻‍🎓 3rd Year B.Tech Student.
 - 🌱 I’m currently learning everything 🤣
